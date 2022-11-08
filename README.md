@@ -1,4 +1,4 @@
-**Yazar:** Selin Yılmaz
+**Yazar:** Selin Y.
 # Hakkımda
 
 Merhaba. Ben Selin.
